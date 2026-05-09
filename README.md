@@ -41,6 +41,4 @@ Este proyecto puede incluir:
 
 Para más información, puedes comunicarte con la administración del club.
 
----
 
-¡Gracias por formar parte de nuestra comunidad! 💙
